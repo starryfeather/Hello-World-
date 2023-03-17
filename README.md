@@ -8,6 +8,6 @@
 > i mean. ill make my own data. or make you sign a legally binding contract.
 and then things will be okay!! nothing to worry about Here haha
 ---
-:cry: and remember:
+🤑 and remember:
 
 # *40 future!!*
