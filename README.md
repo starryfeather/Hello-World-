@@ -1,5 +1,4 @@
 # hello world 👋
-**please read before looking at my other $#¡+!!**
  
 ### **I am going to be an Ai engineer where i invent**
 ### **a robot that will finally be a soulless as me**
