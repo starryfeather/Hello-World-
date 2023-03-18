@@ -1,5 +1,5 @@
 # hello world 👋
- 
+ **please check out the my lore page on the wiki for more info**
 ### **I am going to be an Ai engineer where i invent**
 ### **a robot that will finally be as soulless as me**
 #### *it's going to be revolutionary and bring about an age of singularity!*
